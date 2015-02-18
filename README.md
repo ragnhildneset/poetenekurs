@@ -1,1 +1,1 @@
-# poetenekurs GITHUB ER KULT
+# poetenekurs GIT <3
