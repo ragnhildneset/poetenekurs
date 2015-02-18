@@ -1,2 +1,3 @@
+
 # poetenekurs
-JEG DIGGER MEG SELV
+HANNE + RAGNHILD = SANT
