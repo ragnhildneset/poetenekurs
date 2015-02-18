@@ -1,3 +1,4 @@
+# potetenekurs
+haha see what I did there? mohahahah
 
-# poetenekurs
-HANNE + RAGNHILD = SANT
+HANNE + RAGNHILD = sant
